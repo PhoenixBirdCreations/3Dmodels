@@ -7,6 +7,6 @@ Obviously the logical thing to do was to model the house myself and have a walk 
 
 The game never happened. But the house was pretty much all done and the texturing proccess was starting.
 
-I am open to finish texturing and putting all together for actual use! I may update some pictures in my free time.
+I am open to finish texturing and putting all together for actual use!
 
 What do you think of black magic?
